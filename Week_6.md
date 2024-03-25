@@ -22,3 +22,5 @@ This week I learn't about different roles that are given to each member of a tea
 
 It is important to use a variation of different agile meetings to keep the team on track with goals and tasks. I think it is important for all meetings to have similar roles to agile meetings, so that all team members in the group can have time to voice their opinions, goals and issues without being interrupted. This would be very helpful as sometime I loose my train of thought when I am interrupted half way through a point. By implementing these roles, it will help with my communication to my team members, but also my understanding of what others are saying.
 
+
+Test teast teast teatsthihjgfjhfgfhig
