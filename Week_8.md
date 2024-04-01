@@ -36,14 +36,3 @@ The result from this test will help you understand if you can efficiently studyi
 Completing the tests this week was very helpful as it helped me to refine my study habits. I was able to write summaries on content that I learnt this week for 4 out of my 5 study sessions. I found that 2 hours of study is my optimum time for me to absorb information.z It was better for my study to be in different rooms to study in, the best rooms where in 301, 004 and certain parts in the library.
 
 
-
-
-
-
-
-# Career/employability/Learning Insight
-
-
-
-
-
